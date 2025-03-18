@@ -17,4 +17,8 @@ Logitech MX Keys – Tastiera wireless a membrana, ottima per produttività e co
 Razer Huntsman Mini – Tastiera meccanica compatta al 60%, con switch ottici per una risposta ultra-rapida, ideale per gaming  
 SteelSeries Apex Pro – Tastiera meccanica con switch magnetici regolabili, permette di personalizzare la corsa dei tasti per un'esperienza unica  
 
+Logitech G Pro X Superlight – Mouse da gaming ultraleggero (63g), sensore HERO 25K con alta precisione e connessione wireless Lightspeed, ideale per eSport.  
+Razer DeathAdder V3 Pro – Ergonomico, leggero (64g), con sensore Focus Pro 30K e switch ottici di terza generazione, perfetto per giochi FPS.  
+Apple Magic Mouse 2 – Mouse minimalista con superficie multi-touch, design ricaricabile e perfetta integrazione con macOS per gesture fluide.  
+
 Elettronica Padovana  
